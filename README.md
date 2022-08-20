@@ -1,2 +1,0 @@
-# rixkyduwi.github.io
-portofolio
